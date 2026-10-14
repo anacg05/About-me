@@ -1,7 +1,7 @@
 
 
 # _Ana Clara Grizotto_
->21 years <br>
+>22 years <br>
 >Bosch Brazil, Digital Solutions
 
 ## _Academic Background_
